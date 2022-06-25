@@ -1,1 +1,1 @@
-These are task given to be by zuri
+These are tasks given to be by zuri
